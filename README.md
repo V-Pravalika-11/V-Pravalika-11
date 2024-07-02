@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **pravalika20vadagam@gmail.com**
 
-<img align="right" alt="coding"width="400"src="https://www.echelonedge.com/wp-content/themes/echelon/assets/img/echelon-data-quipo.gif>
+<img align="right" alt="coding"width="400"src=""C:\Users\Pavan\Desktop\echelon-data-quipo (1).gif">
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
